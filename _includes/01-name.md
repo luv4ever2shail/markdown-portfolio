@@ -1,1 +1,0 @@
-# Shail Patel
